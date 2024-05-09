@@ -1,1 +1,1 @@
-Muchas gracias por las enseñanzas Miss :3
+Muchas gracias por las enseñanzas Miss :)
