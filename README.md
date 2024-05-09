@@ -1,1 +1,1 @@
-Muchas gracias por el aprendisaje Miss
+Muchas gracias por las enseñanzas Miss
